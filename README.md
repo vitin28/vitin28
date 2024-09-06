@@ -8,7 +8,8 @@ meu nome é Vitor Gomes
 
 - ### Você pode entrar em contato comigo 📫
 
--@vitin28_crg)
+-@vitin28_crg
+
 gomes.costa.vitor@escola.pr.gov.br 
 
 
